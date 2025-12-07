@@ -1,5 +1,5 @@
 <a href="https://linkly.link/2SXtV" target="_blank" rel="noopener noreferrer">
-  <img src="https://i.imageupload.app/f42ed33f416a1fa41e1f.jpeg" alt="BDG Win Register" width="100%" height="auto" style="margin: 15px;" />
+  <img src="https://i.imageupload.app/7fd2de362ed10fa75599.jpeg" alt="BDG Win Register" width="100%" height="auto" style="margin: 15px;" />
 </a>
 
 
